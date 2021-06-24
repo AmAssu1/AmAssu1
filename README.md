@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning web pentesting
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
+-     1-Twitte-@Assu_Gamerz 
+-     2-Instagram-ss7_error
         
       
 
